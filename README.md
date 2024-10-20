@@ -1,4 +1,4 @@
-## 🗿 ABOOOBA 👋
+## aboba 👋
 
 ![alt text](https://media.tenor.com/9wllMjsxqaAAAAAM/bocchi-the-rock-bocchi-the-rock-gif.gif)
 <!--
